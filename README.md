@@ -9,11 +9,13 @@ project to improve my skills. I like so much to collaborate!*
 
 </br>
 
-💻   I like to collaborate and join each oyher to do some projects, for sure, when I improve my skills I will do it more times
+:heart:  I like to collaborate and join each other to do some projects
 
-📫   Reach me on petramello@gmail.com
+:email: Reach me on petramello@gmail.com
 
-👩‍  I'm studing to improve always
+:busts_in_silhouette: Connect with me by my https://www.linkedin.com/in/petramello/
+
+💻  I'm studing to improve always
 
 🔭   I’m currently looking for a job
 
