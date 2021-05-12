@@ -4,7 +4,7 @@
 </br>
 </br>   
 
-*I'm a junior Front-end Developer, interested in evolving as a programmer. I've started programming at 2019, and since there I have been studing and doing some 
+*I'm a Front-end Developer enthusiastic, interested in evolving as a programmer. I've started programming at 2019, and since then I have been studing and doing some 
 project to improve my skills. I like so much to collaborate!*
 
 </br>
